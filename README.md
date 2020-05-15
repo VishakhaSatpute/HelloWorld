@@ -1,1 +1,1 @@
-Ho I'm Vishakha Satpute, Hello World code added
+Hi I'm Vishakha Satpute, Hello World code added
